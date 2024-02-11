@@ -1,4 +1,7 @@
-# TATA Data Visualisation: Empowering Business with Effective Insights
+# TATA Data Visualisation: Empowering Business Analysis with Effective Insights
+
+![Network Error](https://listcarbrands.com/wp-content/uploads/2017/10/Tata-Motors-Logo-1988.png)
+
 
 Hello there! Myself Shani Soni 
 
